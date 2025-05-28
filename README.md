@@ -12,3 +12,6 @@
 
 
 ♢ I might come off as dry a lot,, unless if I explicitly state otherwise I don't mean it
+
+
+✧ I may or may not be brutally honest sometimes
