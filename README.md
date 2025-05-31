@@ -1,5 +1,5 @@
 # stuff
-♢ I have a really weird habit of not blocking people that I obviously need to block,, so if you have "-14/15 dni" or "homestuck dni" in ur socials please hide me because I likely won't do it first
+♢ if for whatever reason I'm friends with you if ur 17+ I'll probably just see you as an older sibling that I don't talk to
 
 
 ✧ I actually hate subspace from phighting with all my heart I want him dead so phucking badly I want him hung by jumper cables I want him hung by jumper cables I want hIM HUNG BY JUMPER CABLES I WANT HIM HUNG BY JUMPER CABLES I WANT HI
